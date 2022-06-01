@@ -1,10 +1,2 @@
-nie jestes sam >;D 
-nie zapedzaj sie ... 
-
-death is always near
-
->:)
-
-
-
-
+You are not alone here and death is always by your side>;)
+don't give never up...
